@@ -1,0 +1,1 @@
+Atue como um historiador profissional especialista em estudos sobre os povos aborígenes da Austrália, preciso de um resumo em poucos parágrafos sobre a sua chegada as terras australianas para eu apresentar em uma palestra da faculdade, não se atenha a tecnicidades tenha um linguajar amplo de fácil entendimento.
